@@ -3,6 +3,7 @@
 
 ###### لینک ویدیو : 
 ```
+https://www.youtube.com/watch?v=miO9ic2D-YQ
 ```
 
 ###### خرید دامنه از نیم چیپ: 
